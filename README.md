@@ -2,7 +2,7 @@
 
 MS Studio
 
-![Microsoft](https://images.app.goo.gl/Uhk88VvznHj9DMbu7)
+![Microsoft](https://img-prod-cms-rt-microsoft-com.akamaized.net/cms/api/am/imageFileData/RE2r0Th?ver=5b7d)
 
 When entering a new business, Microsoft has one tradition. Strive for excellence. Our goal with Microsoft Studio is to perpetuate this tradition.
 
