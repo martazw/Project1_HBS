@@ -2,7 +2,7 @@
 
 MS Studio
 
-![Microsoft](https://images.app.goo.gl/Uhk88VvznHj9DMbu7)
+![Microsoft](https://img-prod-cms-rt-microsoft-com.akamaized.net/cms/api/am/imageFileData/RE2r0Th?ver=5b7d)
 
 When entering a new business, Microsoft has one tradition. Strive for excellence. Our goal with Microsoft Studio is to perpetuate this tradition.
 
@@ -43,12 +43,12 @@ Most succesfull directors
 Based on those 5 differents analysis, we have a sypnosis for our first movie.
 It will be a Drama movie with a hinch of comedy, directed by James Wan and starring Michael B. Jordan and Emma Stone.
 
-![James Wan](https://images.app.goo.gl/N99ssXEMYCTHB91o6)
-![Michael B. Jordan](https://images.app.goo.gl/1WHeMgtV74JfUDCG8)
-![Emma Stone](https://images.app.goo.gl/akcesiRyp75mkhob8)
+![James Wan](https://pmcvariety.files.wordpress.com/2019/08/james-wan.jpg?w=681&h=383&crop=1)
+![Michael B. Jordan](https://fr.web.img6.acsta.net/pictures/19/02/25/10/57/4257123.jpg)
+![Emma Stone](https://m.media-amazon.com/images/M/MV5BMjI4NjM1NDkyN15BMl5BanBnXkFtZTgwODgyNTY1MjE@._V1_.jpg)
 
 
 The title will be "The Panda Whisperer", in theather on Nov. 12, 2021
 
-![The Panda Whisperer](https://images.app.goo.gl/q8pUtB5GbYnfkkWr6)
-The sequel will hopefully be released in 2023. 
+![The Panda Whisperer](https://d279m997dpfwgl.cloudfront.net/wp/2018/04/0413_pandas-1000x668.jpeg)
+The sequel will hopefully be released in 2023.  
